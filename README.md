@@ -1,0 +1,2 @@
+# omegalul
+fignya kakayato
